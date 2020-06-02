@@ -23,7 +23,9 @@ responsibility. Proven record of successful work both independently and as a tea
 ### Feel Free to Contact
 
 ANISH KUMAR
-embuddy.tech@gmail.com
+
+<embuddy.tech@gmail.com>
+
 8075352157
 
     
